@@ -36,3 +36,11 @@ ShellSorter:
 
 4.用他人的图片排序
 
+选了吴欣瞳（学号202220012）的快排图
+
+视频地址：
+
+```
+链接：https://pan.baidu.com/s/1HpFrxXBLhvFmn1LlCUfZxg 
+提取码：dft5
+```
